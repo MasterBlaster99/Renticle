@@ -26,5 +26,8 @@
 
 ![WhatsApp Image 2023-12-16 at 5 36 12 PM (1)](https://github.com/MasterBlaster99/Renticle/assets/71667923/851ae09c-8856-47fa-b390-5a1706148b25)
 
+<img width="341" alt="Screenshot 2023-12-18 at 12 18 52 AM" src="https://github.com/MasterBlaster99/Renticle/assets/71667923/b068579b-c439-431e-b86a-ef8d971339c1">
+
+
 
 
