@@ -1,3 +1,4 @@
+##### Not an open source project. Cannot Add Code Due to Privacy Reasons. 
 # Renticle
 ### The C2C Platform for Lending your own items to others or Vice Versa
 
